@@ -1,2 +1,2 @@
- https://gayathridevi14007.github.io/Portfolio/
+https://gayathridevi14007.github.io/Portfolio/
 
